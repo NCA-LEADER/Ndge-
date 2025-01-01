@@ -1,2 +1,0 @@
-# Ndge-
-His Committment
